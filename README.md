@@ -1,6 +1,6 @@
 # Dikidigital
 
-**`Digital Man (Developer/Cybersecurity)`**
+**`Digital Man (Developer/Cybersecurity/Linux User)`**
 
 ---
 
